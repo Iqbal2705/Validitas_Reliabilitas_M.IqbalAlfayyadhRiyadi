@@ -1,0 +1,1 @@
+# Validitas_Reliabilitas_M.IqbalAlfayyadhRiyadi
